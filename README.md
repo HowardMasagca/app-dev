@@ -8,7 +8,7 @@
 
 ### Impressions
 
--The plot twist of the story itself is interesting, providing more actions and side stories, also the characters are good especially in their design.
+-The plot twist of the story itself is interesting, providing more actions and side stories, also the characters are good especially in their design and their style and bankai.
 
 
 ## 2. Nanatsu no Taizai
