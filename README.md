@@ -1,10 +1,19 @@
 # app-dev
-# MY FAVOURITE SERIES ARE:
 
-##1. Nanatsu no Taizai(Seven deadly Sins)
-###It is a series that shows the seven deadly sins fighting in the demon realm to break the curse of perpetual rebirth and everlasting life.
-##2. Sousou no Frieren(Frieren the Slayer)
-###Series that provides moral stories on how to deal with life. It shows an elf who live in soliture for a thousand of years to share his knowledge in magic.
-##3. Bleach
-### This series is about soul reapers who fight with arrancar, quincies, and espada.
+# MY FAVORITE SERIES/MOVIES
 
+## 1. Bleach
+
+### It is a story that tells about soul reapers, quincy, and arrancar that to separate the 3 worlds. Hueco mundo, soul society, and Quincy from interfering in the world.
+
+### Impressions
+
+-The plot twist of the story itself is interesting, providing more actions and side stories, also the characters are good especially in their design.
+
+
+## 2. Nanatsu no Taizai
+### It is a historical series that has great characters of seven deadly sins against the demon realm and the deity. They're fighting on it because they wanted to break the curse of perpetual rebirth and everlasting life.
+
+### Impressions
+
+-Their powers are all great when it comes to fighting their opponents in which make it more interesting.
